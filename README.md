@@ -1,4 +1,4 @@
-# Crypto-Bootstrap.dat-1
+# Crypto-Bootstrap.dat
 
 I am doing this because 1 i have this data already so might as well, and 2 its a way for me to plug in my crypto coin address, you dont need to pay me... but i would not mind :P
 
